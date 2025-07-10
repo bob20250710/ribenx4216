@@ -16,4 +16,4 @@ SEO优化在成人视频网站中依然扮演着至关重要的角色。为了�
 
 此外，社交化功能也是成人平台引导用户参与的重要手段。通过增加评论、评分和分享功能，平台不仅能够提升内容的互动性，还能够在一定程度上扩大视频的传播范围，使平台获得更多的曝光度。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4216 ）</span>
